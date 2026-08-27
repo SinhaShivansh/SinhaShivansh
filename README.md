@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **shivansh92006@gmail.com**
 
-- ⚡ Fun fact **The more I learn the more we discover how less we know...!**
+- ⚡ Fun fact **The more we learn the more we discover how less we know...!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
